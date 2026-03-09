@@ -1,5 +1,4 @@
 
- here jo e ... torch.... yall can just have it ... give me some cash like i dont know 10 million and if yall need help dont be a fucking bitch .. just ask for it... you know i got this set up where all i have to do is send u a code and all you have to do is tell it what u want to build and it does all the math and work for you .... super simple ..lol... i did this yesterday in literally like 2 minutes... i dont need it.. plus.... all the math engines and financial and golden dome and all that is cool and all but with out the math i am the heir to the seven sisters oil cartel,,, so tionna can get over the money we will have plenty.... but ... and this is a big ass but.....lol...... joe needs to release that fucking bitch ass stalking order on him and his wife and kid....... and ill tell the boys not to arrest you and ill stop talking shit. . but 100% if i permanetly get removed from my daughter .. the sisters will handel that .. and that is something even the dod dosent want to fuck with...were fucking all american... were in this together ... stop being faggots ... just ask .. shit
  
  
  
